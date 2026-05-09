@@ -1,4 +1,4 @@
-
+Get the ultimate CorelDRAW for macOS plugin with CorelDRAW for macOS exclusive Plugin: export presets & masking tools. Featuring export presets and masking tools, it's the best
 
 
 
